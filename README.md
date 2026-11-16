@@ -1,2 +1,2 @@
 # Uyga-vazifaa
-Uyga vazifa
+Uyga vazifani bajarish
