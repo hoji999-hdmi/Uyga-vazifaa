@@ -1,0 +1,2 @@
+# Uyga-vazifaa
+Uyga vazifa
